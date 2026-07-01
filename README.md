@@ -16,3 +16,4 @@ Here are some ideas to get you started:
 --> memayu hayuning bawono
 -  🤲 bismillah
 -  🤞 positif
+-  😊 strong
