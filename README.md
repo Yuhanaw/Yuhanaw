@@ -18,3 +18,4 @@ Here are some ideas to get you started:
 -  🤞 positif
 -  😊 strong
 -  😍 penuh cinta
+-  🥰 selalu semangat
