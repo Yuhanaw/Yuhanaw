@@ -19,3 +19,4 @@ Here are some ideas to get you started:
 -  😊 strong
 -  😍 penuh cinta
 -  🥰 selalu semangat
+-  $yhn
