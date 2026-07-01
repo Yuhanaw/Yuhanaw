@@ -17,3 +17,4 @@ Here are some ideas to get you started:
 -  🤲 bismillah
 -  🤞 positif
 -  😊 strong
+-  😍 penuh cinta
